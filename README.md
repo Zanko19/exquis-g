@@ -17,3 +17,5 @@ Under the moonlight, a mysterious object gleamed amid ancient ruins. Intrigued, 
 He was brave and strong. He wasnt gonna let his friends die over a banana problem. No one could stop the main protagonist of the story, superman and spiderman couldnt do anything to him.
 
 A fierce dragon soared through the stormy skies, its scales glistening with the power of ancient flames. In a hidden valley, a brave knight prepared to face the beast, armed with a legendary sword and unwavering determination. As they clashed in a battle of fire and steel, destiny unfolded in the heart of the tempest. *Oni*
+
+He was brave and strong. He wasnt gonna let his friends die over a banana problem. No one could stop the main protagonist of the story, superman and spiderman couldnt do anything to him.
